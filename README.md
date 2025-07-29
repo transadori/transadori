@@ -3,7 +3,6 @@
 </p>
 <p align="center">
 　 　 　do　　you　　remember　　the　　time
- 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　　when　　we　　first　　met?
 </p>
       <p align="center">
 　 　 　 　 　　when　　we　　first　　met?
