@@ -20,5 +20,5 @@
 　 　 　 isfp-t　 𓏼　 sys　◡　yumeshipper
 </p>
 <p align="center">
-<img src="https://file.garden/ZmyMAi1zTw_Os_OB/itafushi%20psd%20imgs/github%20itafushi%20img/img%20headers/Untitled1037_20241008215618%20(1)%20(2).png" />
+<img src="https://file.garden/ZmyMAi1zTw_Os_OB/itafushi%20psd%20imgs/github%20itafushi%20img/img%20headers/Untitled1037_20241008215618%20(1)%20(3).png" />
 </p>
