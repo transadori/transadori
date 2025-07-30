@@ -22,3 +22,4 @@
 <p align="center">
 　 　 　  c+h　　w2i　♡　usually　　offtab 
 </p>
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=transadori)
