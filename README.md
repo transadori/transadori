@@ -1,24 +1,11 @@
 <p align="center">
- <img src="https://file.garden/ZmyMAi1zTw_Os_OB/itafushi%20psd%20imgs/github%20itafushi%20img/img%20headers/transadori_itafushi_graphic.gif" />
+<img src="https://file.garden/ZmyMAi1zTw_Os_OB/itafushi%20psd%20imgs/github%20itafushi%20img/img%20headers/tumblr_0528a42cca2a150b76be1f06da52c309_11aa8b66_1280%20(2).png" />
+<img src="https://file.garden/ZmyMAi1zTw_Os_OB/itafushi%20psd%20imgs/github%20itafushi%20img/gif%20headers/tumblr_0528a42cca2a150b76be1f06da52c309_11aa8b66_1280%20(2).gif" />
+<img src="https://file.garden/ZmyMAi1zTw_Os_OB/itafushi%20psd%20imgs/github%20itafushi%20img/img%20headers/tumblr_0528a42cca2a150b76be1f06da52c309_11aa8b66_1280%20(2).png" />
 </p>
 <p align="center">
-do　　you　　remember　　the　　time
+✦ ﹚　<strong>　about　me</strong>　﹒﹒﹒　<strong>nox(is)　 /　 nyaxis</strong> 　( ˶ᵔ ᵔ)　　　　8teen　10/25
 </p>
 <p align="center">
-when　　we　　first　　met?
-</p>
-<p align="center">
- <img src="https://file.garden/ZmyMAi1zTw_Os_OB/itafushi%20psd%20imgs/github%20itafushi%20img/img%20headers/small_fushiita_header.png" />
-</p>
-<p align="center">
-noxis　　૮₍ ˶ᵔ ᵕ ᵔ˶ ₎ა　　17yo  black
-</p>
-<p align="center">
-†˘ 　 mentally　　 disabled,　　abropoly
-</p>
-<p align="center">
-isfp-t　 𓏼　 sys　◡　yumeshipper
-</p>
-<p align="center">
-c+h　　w2i　♡　usually　　offtab 
+⸺　　<strong>he　 /　 star</strong>
 </p>
