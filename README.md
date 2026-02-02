@@ -4,5 +4,5 @@
  <img src="https://file.garden/ZmyMAi1zTw_Os_OB/github%20shit/itafushi%20psd%20imgs/github%20itafushi%20img/img%20headers/divider" />
 </p>
 <p align="center">
-boo
+forbidden　from　the⠀ beginning⠀⠀　　　　　　　　　　　　　　　　┈┈　　　　"　　　　(◍•ᴗ•◍)
 </p>
