@@ -6,3 +6,6 @@
 <p align="center">
 forbidden　from　the⠀ beginning⠀⠀　　　　　　　　　　　　　　　　┈┈　　　　"　　　　(◍•ᴗ•◍)
 </p>
+<p align="center">
+ <a href= "https://rentry.co/meramera"> rentry</a>⠀⠀　　　　　　　<a href= "https://fushiita.atabook.org/">ata </a> 
+</p>
