@@ -1,8 +1,10 @@
 <p align="center">
-forbidden　from　the⠀ beginning⠀⠀　　　　　　　　　　　　　　　　┈┈　　　　"　　　　(◍•ᴗ•◍)
+forbidden　from　the⠀ beginning⠀⠀　　　　　　　　　　　　　┈┈　　　　"　　　　(◍•ᴗ•◍)
 </p>
 <p align="center">
-<img src="https://file.garden/ZmyMAi1zTw_Os_OB/github%20shit/itafushi%20psd%20imgs/SPOILER_A6C7B565-FB32-435D-8FA0-F4D70305A30F%20(2).gif" />
+<img src="https://file.garden/ZmyMAi1zTw_Os_OB/github%20shit/itafushi%20psd%20imgs/github%20itafushi%20img/img%20headers/SPOILER_A6C7B565-FB32-435D-8FA0-F4D70305A30F%20(1).png" />
+<img src="https://file.garden/ZmyMAi1zTw_Os_OB/github%20shit/itafushi%20psd%20imgs/github%20itafushi%20img/gif%20headers/SPOILER_A6C7B565-FB32-435D-8FA0-F4D70305A30F%20(3).gif" />
+<img src="https://file.garden/ZmyMAi1zTw_Os_OB/github%20shit/itafushi%20psd%20imgs/github%20itafushi%20img/img%20headers/SPOILER_A6C7B565-FB32-435D-8FA0-F4D70305A30F%20(1).png" />
 </p>
 <p align="center">
  𝐍𝐨𝐱　ou　Noxis　　　　ꮿ      ゚     ۪    🌸　　　he　/　star　　
