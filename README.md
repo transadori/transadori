@@ -7,7 +7,7 @@ forbidden　from　the⠀ beginning⠀⠀　　　　　　　　　　　　　
 <img src="https://file.garden/ZmyMAi1zTw_Os_OB/github%20shit/itafushi%20psd%20imgs/github%20itafushi%20img/img%20headers/SPOILER_A6C7B565-FB32-435D-8FA0-F4D70305A30F%20(1).png" />
 </p>
 <p align="center">
- 𓏼　  ͝𓈒♡　　　8teen　　e　　african　american　　　he/star　　　
+ 𓏼　  ͝𓈒♡　　　8teen　　𓍢ִ໋🌷͙֒　　african　american　　　he/star　　　
 </p>
 <p align="center">
 symbo　　　mentally　disabled　　kao　　abropoly
