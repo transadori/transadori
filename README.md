@@ -13,7 +13,7 @@ forbidden　from　the⠀ beginning⠀⠀　　　　　　　　　　　　　
 symbo　　　mentally　disabled　　kao　　abropoly
 </p>
 <p align="center">
-<img src="https://file.garden/ZmyMAi1zTw_Os_OB/github%20shit/itafushi%20psd%20imgs/github%20itafushi%20img/gif%20headers/tumblr_4c816d5882dbb3dc0fef7c5284406e2a_c7901156_250%20(1).gif" />
+<img src="https://file.garden/ZmyMAi1zTw_Os_OB/github%20shit/itafushi%20psd%20imgs/github%20itafushi%20img/gif%20headers/tumblr_4c816d5882dbb3dc0fef7c5284406e2a_c7901156_250%20(1).gif" /><img src="https://file.garden/ZmyMAi1zTw_Os_OB/github%20shit/itafushi%20psd%20imgs/github%20itafushi%20img/gif%20headers/tumblr_4c816d5882dbb3dc0fef7c5284406e2a_c7901156_250%20(1).gif" />
 </p>
 <p align="center">
  <a href= "https://rentry.co/meramera"> rentry</a>⠀⠀　　　　　　　<a href= "https://fushiita.atabook.org/">ata </a> 
