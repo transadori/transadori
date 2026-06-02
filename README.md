@@ -1,4 +1,4 @@
-　　<img align="left" width="300" src="https://file.garden/ZmyMAi1zTw_Os_OB/github%20shit/itafushi%20psd%20imgs/png">
+　　<img align="left" width="330" src="https://file.garden/ZmyMAi1zTw_Os_OB/github%20shit/itafushi%20psd%20imgs/png">
 
 　　<img src="https://file.garden/ZmyMAi1zTw_Os_OB/github%20shit/itafushi%20psd%20imgs/multi124.png" />
  
