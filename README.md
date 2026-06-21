@@ -8,7 +8,7 @@
  
  🍹  abropoly　lone alpha　iwecau
  
-$${\color{#6D9DAB} 𓈄۫ ݂     ﹢}$$　[atabook](https://fushiita.atabook.org/)　[rentry](https://rentry.co/portgas)　(   ´̣̣̥⠀ ᩙᩙ ` )
+[straw](https://fushiitas.straw.page/)　[atabook](https://fushiita.atabook.org/)　[rentry](https://rentry.co/portgas)　(   ´̣̣̥⠀ ᩙᩙ ` )
 
 <img src="https://file.garden/ZmyMAi1zTw_Os_OB/github%20shit/itafushi%20psd%20imgs/multi125.png" />
 <br clear="left"/>
